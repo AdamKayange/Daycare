@@ -1,2 +1,2 @@
-Just get thec code and work on it
+Just get the code and work on it
 Guest everything is fine.... 
